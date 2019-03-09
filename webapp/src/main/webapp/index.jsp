@@ -1,1 +1,1 @@
-All praise and thanks belongs to Allah - the Lord of the worlds!!!
+All praises and thanks belongs to Allah - the Lord of the worlds!!!

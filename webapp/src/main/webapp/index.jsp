@@ -1,2 +1,1 @@
-Hello, Welcome to VNC Digital!!
-Its lunch time
+All praise and thanks belongs to Allah - the Lord of the worlds!!!
